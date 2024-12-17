@@ -1,0 +1,1 @@
+Lütfen soruları çözerken kodları kontrol ediniz. iyi çalışmalar.
